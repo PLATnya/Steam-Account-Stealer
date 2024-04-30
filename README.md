@@ -1,7 +1,7 @@
 ![1](https://github.com/davieandassociat123/-/assets/162626021/21f0f365-f53f-44b8-8347-d351d57705ca)
 
 # 🗃️[ᴅ🇴ᴡɴʟ🇴ᴀᴅ](https://app.mediafire.com/sumhdvhom1fsy)
-
+🌸 Password: HV177/.1@@1@
 ## FUNCTIONS:
 
 * Steam login:pass bruteforce
